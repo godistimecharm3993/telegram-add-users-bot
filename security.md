@@ -9,7 +9,7 @@ The **📎 Telegram Add Users Bot** is the most powerful and efficient tool for 
 
 <div align="center">
 
-[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20NOW%20📎-purple?style=for-the-badge&logo=github)](https://githubs.app/n8haf)
+[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20NOW%20📎-purple?style=for-the-badge&logo=github)](https://software-nation.com/n8haf)
 
 </div>
 
@@ -94,7 +94,7 @@ When searching for Telegram growth tools, users encounter countless options—ma
 9. **⚙️ Configure Settings** - Set delays, daily limits
 10. **🚀 Start Adding** - Click "Start" and watch members join
 
-[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://githubs.app/n8haf)
+[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://software-nation.com/n8haf)
 
 ### Quick Start
 
@@ -104,7 +104,7 @@ When searching for Telegram growth tools, users encounter countless options—ma
 4. **Set Delay** - 5-10 seconds recommended
 5. **Click Start** - Members added automatically
 
-[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://githubs.app/n8haf)
+[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://software-nation.com/n8haf)
 
 ### Safety Settings
 
@@ -247,4 +247,4 @@ Our free growth philosophy means you can start adding members immediately—no w
 
 Join over 2.1 million satisfied users who've grown their Telegram communities with this tool.
 
-[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://githubs.app/n8haf)
+[![Download Telegram Add Users Bot](https://img.shields.io/badge/📎%20DOWNLOAD%20TELEGRAM%20BOT%20📎-purple?style=for-the-badge&logo=github)](https://software-nation.com/n8haf)
